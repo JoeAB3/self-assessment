@@ -16,3 +16,4 @@ The greatest challenge for me was finding time for the project.  I just started 
 I also think that the Machine learning portion of this course was the most difficult for me to comprehend.  
 
 But we jelled.  We all did what was needed.  We focused on the rubric and made sure that we had all the topic covered.
+It was a pleasure working with these 3 people...and I think I made some friends.
